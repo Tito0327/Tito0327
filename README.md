@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Tito
+- 👀 I’m interested in books
+- 🌱 I’m currently learning python 
+- 📫 How to reach me: instagram
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I don't like spiders
